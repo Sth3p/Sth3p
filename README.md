@@ -10,3 +10,6 @@ Meu nome é Stephani de Jesus Silva
 ### Você pode entrar em contato comigo 📫
 
 Stephani.jesus.silva@escola.pr.gov.br
+
+
+![](https://media.tenor.com/wG29WIu17kYAAAAd/live-to-roblax-roblox.gif)
